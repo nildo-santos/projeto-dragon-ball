@@ -20,6 +20,8 @@ Estou constantemente estudando e aprimorando minhas habilidades. Este projeto é
 
 Fique à vontade para explorar o repositório, conferir o projeto e entrar em contato comigo. Vamos aprender juntos!
 
+https://lnkd.in/dA9ZYKrm
+
 Contato
 LinkedIn: www.linkedin.com/in/nildo-santos
 
